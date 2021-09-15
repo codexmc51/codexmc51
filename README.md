@@ -36,11 +36,3 @@
 
 
 
-
-
-
-|My Info   	|
-|:-:	|
-|Check my resume at : https://www.linkedin.com/in/salmansamian/   	|
-|Contact me : +989175585218   	|
-| ### I'm Open to hire and I can relocate : I need Visa Sponsorship   	|
